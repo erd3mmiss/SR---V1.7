@@ -1,0 +1,2 @@
+# SR---V1.7
+LİCENSE: Erdem TOPRAK
